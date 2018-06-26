@@ -6,7 +6,11 @@
 **Read through the definitions**:
 
 1. What words or phrases stick out to you for each theme?
-
+> Restorative: "It's very likely that you unlock the door to succes by conquering your shortcomings. You intentionally set goals that force you to confront your weaknesses."
+> Deliberative: "You are somewhat private about your personal life [...] You are likely to excuse yourself from discussions about the upbringing, finances, problems, physical conditions, or mental health of yourself and other people."
+> Focus: "It's very likely that you sometimes question how well you are doing in certain aspects of your life. You might aspire to higher levels of excellence."
+> Intellection: "You are doubly blessed: You think with your head and feel with your heart [...] Your definition of 'recreational reading' probably differs from that of many people [...] Few things please you as much as having mastered a subject that interests you."
+> Futuristic: "You sometimes like being an individual performer [...] being alone permits you to concentrate your energy on what you want to accomplish in the coming months, year, or decades."
 2. How would you define each of your top 5 talents in your own words?
 
 3. Do these top 5 talent themes resonate with you? Why or why not? 

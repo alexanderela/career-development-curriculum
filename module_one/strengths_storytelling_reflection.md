@@ -1,6 +1,8 @@
 # Strengths & Storytelling Reflection 
 
 1. **Who are you:** Write 1-2 paragraphs about how you've seen yourself using your StrengthsFinder themes and/or how you've seen yourself grow during this module at Turing. 
+>When we first did the StrengthsFinder exercise, I was very interested to learn that I had the strength with the name, Restorative. One of the hallmark characteristics of this strength is that rather than capitalizing on my strengths, I put the majority of my efforts into improving my weaknesses.
+
 
 2. **Why are you here:** When have you struggled at Turing? How have you dealt with struggle? When have you succeeded at Turing? How did you accomplish those successes?
 
